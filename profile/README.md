@@ -6,12 +6,13 @@ Pikashow is a free live-streaming platform that offers a wide range of entertain
 
 ![Pikashow App](https://github.com/user-attachments/assets/ca4a32aa-077e-48f9-b247-c93ea11395d7)
 
+|![CapCut-Pro-Mod-Apk-Download](https://github.com/user-attachments/assets/7b93ed86-a482-4f4c-a109-41c4bf869794)| 
 |:-------------------------------------------------:|
-[![download-now](https://github.com/user-attachments/assets/22657e67-9d2d-46af-a41a-5d365d2ddc1f)](https://newsloopy.com/pikashow-apk/)  |
-| *Platform: *Android 4.4+ and up                     
-| *Size: *16.38 MB                                                 
-| *Version: *v86 |
-| Category : Entertainment |
+[![download-now](https://github.com/user-attachments/assets/22657e67-9d2d-46af-a41a-5d365d2ddc1f)](https://modhello.com/delta-executor/)  |
+| *Platform: *Android 5.0+                     
+| *Size: *282.71 Mb                                                  
+| *Version: *13.5.0    |
+| Category : Video Players & Editors |
 | MOD : Premium Unlocked
 | ⭐⭐⭐⭐⭐ |
 
@@ -57,6 +58,8 @@ Before downloading any app, we look at the features of that app after which we d
 You also know that everyone watches movies and everyone likes to watch movies, they can use the Pikashow app if they want to watch any kind of movie.
 
 Apart from this, if you are thinking about downloading a movie, then you can use the Pikashow APK because in this app we also get the option to download the movie.
+![Download Pikashow APK](https://github.com/user-attachments/assets/bcd19477-3dfb-4dab-9a1c-c53208a89b5f)
+
 
 ### Watch Web Series
 
